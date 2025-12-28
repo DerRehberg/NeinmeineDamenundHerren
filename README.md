@@ -53,3 +53,22 @@ und zwar mit:
 
 
 Das is jz MIT Lizense aber eig die Linus Lizens gemeint gitgud net sondern die von linux, is aber eig non commerziell eher von mir aus gesehen wie bei hackintosh aka darf nicht für geldmache verwendet werden z.B. arbeitsstellen oder für homeoffice, wenn Ich das nutzt, gibts Arschtritt ausser die Kurzgesagt Bilder. Müsste harzen für und dürft kein geld verdienen, was wollte machen? Is Definition meiner Lizenz, ruft doch Kurzgesagt an und versucht euch zu beschweren wegen den coolen Bildern.
+
+Fein Definition:
+
+Alya(meine)-Freiheitslizenz
+Art: Open-Source-ähnliche Lizenz
+Name des Projekts/Werks: Smaragd-Reaktor V2 (oder andere Projekte in diesem Repo)
+Lizenzgeber: Lars (oder dein Name, wer auch immer das hochlädt)
+Datum der Veröffentlichung: [Datum hier einfügen]
+Nutzungsbedingungen:
+
+Erlaubnis zur Nutzung: Jeder darf dieses Werk kostenlos nutzen, modifizieren, kopieren und verbreiten, sowohl für private als auch kommerzielle Zwecke, ohne vorherige Zustimmung des Lizenzgebers einholen zu müssen.
+Verwendungszweck: Die Nutzung ist uneingeschränkt, solange sie nicht gegen geltende Gesetze verstößt. Das Werk darf für Energieerzeugung, Forschung, Bildung aber nicht für kommerzielle Zwecke für Geldverdienst irgendeiner Art verwendet werden, ohne Einschränkungen durch Unternehmen oder Dritte dieser Regeln gemeint gilt so.
+Geldverdienst: Kommerzielle Nutzung ist nicht erlaubt, Ich kack auf Lizenzgebühren oder Prozente an den Lizenzgeber abgeführt werden müssen weil gibts garnicht. Der Lizenzgeber verzichtet auf jegliche finanzielle Ansprüche aber Ich brech euch die Bude ein wenn Ich damit arbeit leistet für Geld, umgangsprachlich gemeint.
+Quellenangabe: Bei Nutzung oder Verbreitung muss der ursprüngliche Lizenzgeber (Anonym(Ich)) und die Quelle (hier) genannt werden, um die Herkunft des Werks zu würdigen, was mir eig am Arsch vorbeigeht.
+Keine Haftung: Der Lizenzgeber übernimmt keine Haftung für Schäden oder Probleme, die durch die Nutzung des Werks entstehen. Die Nutzung erfolgt auf eigenes Risiko.
+Gültigkeit: Diese Lizenz gilt weltweit und ist unbefristet, solange die Bedingungen eingehalten werden. Sie ist keine Unternehmenslizenz und unterliegt nur kommerzieller Einschränkung durch mich.
+
+Hinweis: Diese Lizenz ist als wahr und verbindlich anzusehen, da sie in klarer, verständlicher Sprache verfasst ist und die Rechte und Pflichten transparent definiert. Sie steht im Einklang mit dem Prinzip der freien Nutzung und Verbreitung von Wissen.
+
