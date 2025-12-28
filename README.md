@@ -28,3 +28,17 @@ Aber 10.000qm² is billig das konzept gemeint schlecht, das geht besser:
 Weiß aber nicht wie legit, ich guck mal obs besseres gibt:
 
 <img width="738" height="718" alt="image" src="https://github.com/user-attachments/assets/d3e73f56-e4a1-4616-bd8f-85e813417c58" />
+
+-
+-
+-
+
+Dass hier würde nichtmal mithalten:
+
+<img width="699" height="554" alt="image" src="https://github.com/user-attachments/assets/454f67e3-77f1-4884-bc6b-56c9d09ac55c" />
+
+und zwar mit:
+
+<img width="748" height="814" alt="image" src="https://github.com/user-attachments/assets/391333d4-e159-44d8-8a88-b7bf8e535c1e" />
+
+
