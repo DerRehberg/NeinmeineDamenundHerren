@@ -9,3 +9,7 @@ Ne, also man soll nicht falsch Zeugnis reden, 4 Leute mit harke, einer hat gesag
 Früher ist nicht immer die Gegenwart.
 Github Name Berg, weil das alles hier ist mal eben dahingeschissen, wobei Ich nicht weiß wie legit im vergleich die Tierzüchtungspläne funktionieren.
 Leute über 40 sind eh nicht in Gefahr das Merz so hoch zählt, Weiber müssen eh nicht Krieg und Harz für Arbeitslose mit 30% Sanktionen bzw Bürgergeld etc kriegt man immer nach Urteil. Ich und die Jungs, wird oder wäre der Renner, Ich setz auf wird wenn einer checkt, was Ich annehme.
+
+
+Ich und die Jungs von Berufsschule die Christus über alles können sind Zivilisation Typ 4, wir klatschen einfach gefühlt n ast in nen baum mit nem stock und haben dann 500gwh
+<img width="1025" height="594" alt="image" src="https://github.com/user-attachments/assets/34b040c1-18a1-41f9-8d48-f73642a42144" />
