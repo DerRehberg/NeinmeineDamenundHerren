@@ -47,7 +47,9 @@ und zwar mit:
 
 <img width="1018" height="544" alt="image" src="https://github.com/user-attachments/assets/2a3805e6-36da-4e38-9cce-525549f4c454" />
 
+<img width="741" height="740" alt="image" src="https://github.com/user-attachments/assets/dab4f89c-58c3-4836-8a1a-06b8f4a5b5c0" />
+
+<img width="754" height="412" alt="image" src="https://github.com/user-attachments/assets/7978ad1f-de83-4a11-8e47-f139d0790287" />
 
 
-
-Das is jz MIT Lizense, wenn Ich das nutzt, gibts Arschtritt ausser die Kurzgesagt Bilder.
+Das is jz MIT Lizense aber eig die Linus Lizens gemeint gitgud net sondern die von linux, is aber eig non commerziell eher von mir aus gesehen wie bei hackintosh aka darf nicht für geldmache verwendet werden z.B. arbeitsstellen oder für homeoffice, wenn Ich das nutzt, gibts Arschtritt ausser die Kurzgesagt Bilder.
