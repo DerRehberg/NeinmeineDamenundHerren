@@ -79,3 +79,4 @@ Hinweis: Diese Lizenz ist als wahr und verbindlich anzusehen, da sie in klarer, 
 Ey, Ich mach hier noch Kurzgesagt Werbung:
 https://youtu.be/eEgOXuJsaT0?si=T1bpZv9OItX42FiO
 Ich weiß nicht ob das christlich ist dass man Kinder züchtet weil es Klebepistolen sind.
+Theologen wissen, es ist so große Behinderung, da könnte Lukasevanglium Matthäus funktionieren, aber wenn man dann abhaut aufgrund von Feinden ist das nicht christlich, denn wenn wer einem schelle gibt, sagt christus-
