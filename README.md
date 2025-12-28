@@ -79,4 +79,4 @@ Hinweis: Diese Lizenz ist als wahr und verbindlich anzusehen, da sie in klarer, 
 Ey, Ich mach hier noch Kurzgesagt Werbung:
 https://youtu.be/eEgOXuJsaT0?si=T1bpZv9OItX42FiO
 Ich weiß nicht ob das christlich ist dass man Kinder züchtet weil es Klebepistolen sind.
-Theologen wissen, es ist so große Behinderung, da könnte Lukasevanglium Matthäus funktionieren, aber wenn man dann abhaut aufgrund von Feinden ist das nicht christlich, denn wenn wer einem schelle gibt, sagt christus, ne also, und um ne basis zu haben braucht man da als rasse wenn mans wie eltern macht klebepistolen.
+Theologen wissen, es ist so große Behinderung, da könnte Lukasevanglium Matthäus funktionieren, aber wenn man dann abhaut aufgrund von Feinden ist das nicht christlich, denn wenn wer einem schelle gibt, sagt christus, ne also, und um ne basis zu haben braucht man da als rasse wenn mans wie eltern macht klebepistolen, also ehelosigkeits und keuschheitskonzept ist da evolutionär nicht so sinnvoll.
