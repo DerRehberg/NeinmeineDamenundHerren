@@ -45,6 +45,8 @@ und zwar mit:
 -
 -
 
+Weißte, wärmepumpe, richtiges material und son chinesisches raumtemperatur einstell ding an der heizung, alles mit strom.
+
 <img width="1018" height="544" alt="image" src="https://github.com/user-attachments/assets/2a3805e6-36da-4e38-9cce-525549f4c454" />
 
 <img width="741" height="740" alt="image" src="https://github.com/user-attachments/assets/dab4f89c-58c3-4836-8a1a-06b8f4a5b5c0" />
