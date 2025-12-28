@@ -75,3 +75,7 @@ Gültigkeit: Diese Lizenz gilt weltweit und ist unbefristet, solange die Bedingu
 
 Hinweis: Diese Lizenz ist als wahr und verbindlich anzusehen, da sie in klarer, verständlicher Sprache verfasst ist und die Rechte und Pflichten transparent definiert. Sie steht im Einklang mit dem Prinzip der freien Nutzung und Verbreitung von Wissen.
 
+
+Ey, Ich mach hier noch Kurzgesagt Werbung:
+https://youtu.be/eEgOXuJsaT0?si=T1bpZv9OItX42FiO
+Ich weiß nicht ob das christlich ist dass man Kinder züchtet weil es Klebepistolen sind.
