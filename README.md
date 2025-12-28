@@ -7,3 +7,4 @@ Reichen wohl BioGas weil Generator gemeint ca. 20kwh für circa ü40 Rechner wen
 
 Ne, also man soll nicht falsch Zeugnis reden, 4 Leute mit harke, einer hat gesagt keiner redet kurz alle gucken traurig. *kamera langsam* "Dieser Zustand, den wir hier sehen, diese Menschen wurden angeleitet nicht zu sprechen..."
 Früher ist nicht immer die Gegenwart.
+Github Name Berg, weil das alles hier ist mal eben dahingeschissen, wobei Ich nicht weiß wie legit im vergleich die Tierzüchtungspläne funktionieren.
