@@ -6,3 +6,4 @@ Wir lassen auch auf keinen Fall jemanden mit ner Suppe und angeblich 20kg zuviel
 Reichen wohl BioGas weil Generator gemeint ca. 20kwh für circa ü40 Rechner wenn überhaupt? Es gilt Lukasevangelium Matthäus und verhaltensregeln der bibel da, da gibts kein mama, papa, aber meine sohn oder meine tocher oder geschwister, das is.. ne, wir packen das, auch wenn überbrückungskabel harz wäre weil 05.11.2019 BvG.
 
 Ne, also man soll nicht falsch Zeugnis reden, 4 Leute mit harke, einer hat gesagt keiner redet kurz alle gucken traurig. *kamera langsam* "Dieser Zustand, den wir hier sehen, diese Menschen wurden angeleitet nicht zu sprechen..."
+Früher ist nicht immer die Gegenwart.
