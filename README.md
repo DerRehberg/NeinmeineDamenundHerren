@@ -52,4 +52,4 @@ und zwar mit:
 <img width="754" height="412" alt="image" src="https://github.com/user-attachments/assets/7978ad1f-de83-4a11-8e47-f139d0790287" />
 
 
-Das is jz MIT Lizense aber eig die Linus Lizens gemeint gitgud net sondern die von linux, is aber eig non commerziell eher von mir aus gesehen wie bei hackintosh aka darf nicht für geldmache verwendet werden z.B. arbeitsstellen oder für homeoffice, wenn Ich das nutzt, gibts Arschtritt ausser die Kurzgesagt Bilder.
+Das is jz MIT Lizense aber eig die Linus Lizens gemeint gitgud net sondern die von linux, is aber eig non commerziell eher von mir aus gesehen wie bei hackintosh aka darf nicht für geldmache verwendet werden z.B. arbeitsstellen oder für homeoffice, wenn Ich das nutzt, gibts Arschtritt ausser die Kurzgesagt Bilder. Müsste harzen für und dürft kein geld verdienen, was wollte machen? Is Definition meiner Lizenz, ruft doch Kurzgesagt an und versucht euch zu beschweren wegen den coolen Bildern.
