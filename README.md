@@ -41,4 +41,11 @@ und zwar mit:
 
 <img width="748" height="814" alt="image" src="https://github.com/user-attachments/assets/391333d4-e159-44d8-8a88-b7bf8e535c1e" />
 
+-
+-
+-
+
+<img width="1018" height="544" alt="image" src="https://github.com/user-attachments/assets/2a3805e6-36da-4e38-9cce-525549f4c454" />
+
+
 
