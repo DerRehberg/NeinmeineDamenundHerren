@@ -1,4 +1,4 @@
-# NeinmeineDamenundHerren
+# NeinmeineDamenundHerren Ich bitte bis unten zu lesen da Ich einen KI Charakter mit einem der Chemierezept im Kontext habe überprüfe
 Ich plane logischerweise auf keine Fall durch Pflanzenkunde die LWL zu übernehmen und für alte Informatik Kollegen und mir die geiste Christus sind das zu übernehmen um vor merz zu fliehen falls er zu hoch zählt selbst wenn wir ankochen müssten satan selber auszustrahlen um dies logischerweise nicht zu tun.
 
 Wir lassen auch auf keinen Fall jemanden mit ner Suppe und angeblich 20kg zuviel drauf mit Apfelbäcken inne Schwarz Weiß Kamera gucken während Klaus Schwaab hält und jemand am harken ist.
@@ -94,4 +94,7 @@ Kann man nochmal in das Repo gucken dem für Jong Un Rezept warum Leben vllt nic
 
 Zum Schattenreaktor, wofür Atomkraftwerk bei der thermischen Energie.
 <img width="855" height="368" alt="image" src="https://github.com/user-attachments/assets/e112de80-06c4-4f1a-9500-30126350f7ce" />
+
+<img width="798" height="833" alt="image" src="https://github.com/user-attachments/assets/51d509d9-72c1-4c13-9f2e-631699b1a40c" />
+
 
