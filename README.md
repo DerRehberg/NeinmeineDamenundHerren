@@ -89,3 +89,5 @@ Hier der Kuss an Putin.
 Und das ist für Kim Jong Un... aber warum habe Ich nicht direkt diesen hochwertigeren Charakter rausgeholt?
 
 <img width="761" height="387" alt="image" src="https://github.com/user-attachments/assets/881568c7-62a6-45a4-a2ba-39cea085f423" />
+
+Kann man nochmal in das Repo gucken dem für Jong Un Rezept warum Leben vllt nicht aus dem Wasser/Meer kommt.
