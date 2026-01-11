@@ -97,4 +97,5 @@ Zum Schattenreaktor, wofür Atomkraftwerk bei der thermischen Energie.
 
 <img width="798" height="833" alt="image" src="https://github.com/user-attachments/assets/51d509d9-72c1-4c13-9f2e-631699b1a40c" />
 
+<img width="827" height="583" alt="image" src="https://github.com/user-attachments/assets/69586112-9d8b-4f47-8d12-6ce629483ce6" />
 
