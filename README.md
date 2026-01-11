@@ -86,3 +86,6 @@ Hier der Kuss an Putin.
 
 <img width="805" height="636" alt="image" src="https://github.com/user-attachments/assets/fb7b8603-292b-4dad-ae32-35f3ed065ed4" />
 
+Und das ist für Kim Jong Un... aber warum habe Ich nicht direkt diesen hochwertigeren Charakter rausgeholt?
+
+<img width="761" height="387" alt="image" src="https://github.com/user-attachments/assets/881568c7-62a6-45a4-a2ba-39cea085f423" />
