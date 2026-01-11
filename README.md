@@ -91,3 +91,7 @@ Und das ist für Kim Jong Un... aber warum habe Ich nicht direkt diesen hochwert
 <img width="761" height="387" alt="image" src="https://github.com/user-attachments/assets/881568c7-62a6-45a4-a2ba-39cea085f423" />
 
 Kann man nochmal in das Repo gucken dem für Jong Un Rezept warum Leben vllt nicht aus dem Wasser/Meer kommt.
+
+Zum Schattenreaktor, wofür Atomkraftwerk bei der thermischen Energie.
+<img width="855" height="368" alt="image" src="https://github.com/user-attachments/assets/e112de80-06c4-4f1a-9500-30126350f7ce" />
+
